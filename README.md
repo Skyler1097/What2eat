@@ -1,1 +1,1 @@
-# What2eat-
+# What2eat
